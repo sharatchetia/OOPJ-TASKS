@@ -10,7 +10,7 @@
 
 ![image alt](https://github.com/sharatchetia/OOPJ-TASKS/blob/8bed9e35088e30b345d4f7cf52ecd9b617e1a9d4/WhatsApp%20Image%202025-07-29%20at%2021.21.47_a28606b0.jpg)
 
-![image alt]()
+![image alt](https://github.com/sharatchetia/OOPJ-TASKS/blob/b53e3a3a40badc59bba0b4e6df42576f23092466/WhatsApp%20Image%202025-07-29%20at%2021.21.06_0cd54eaa.jpg)
 
 ![image alt]()
 
